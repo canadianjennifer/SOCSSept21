@@ -1,2 +1,0 @@
-# SOCSSept21
- SOCSSept21
